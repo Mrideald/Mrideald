@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Mrideald
+- 👀 I’m interested in write code.
+- 🌱 I’m currently learning QianDuan.
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me ...
